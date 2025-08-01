@@ -15,11 +15,11 @@ Email: kirandeepkaurkiran64@gmail.com
 
 ## Day 1 (31st July 2025)
 
-8:30 to 10:00 Gurdwara Shabad Kirtan
+#### 8:30 to 10:00 Gurdwara Shabad Kirtan
 
-10:00 to 11:00 Tea Break
+#### 10:00 to 11:00 Tea Break
 
-11:00 onwards Lectures in auditorium
+#### 11:00 onwards Lectures in auditorium
 > Guest of Owner **"Shri Rawinder Garg"**
 >
 >>(Chief Engineer at Munciple Corporation Ludhiana)
@@ -63,5 +63,24 @@ Sir told us how we can easily avail Education loan upto 4 lakh and how we dont h
 ### 12th speech (Alumni Mr. Rakesh Kumar (DC of Ludhiana))
 He was a student of gndec in ECE branch 1991 pass out.
 
-
+## Day 2 (1st August 2025)
+### Anchor(Senior) Harleen Kaur
+#### 9:30 to 10:30 English Proficiency Test
+#### 10:30 to 11:30 Maths Proficiency Test
+#### 11:30 to 1:00 Break
+#### 1:00 to 2:00 Auditorium About Satya Scholarship
+ 1. Mr. Manoj Kumar
+ 2. Mr. Manish Kumar
+ 3. Mr. Shivam Sharma
+### Mr. Manoj Kumar
+He let us know about a new term Buddy4study scholarships portal which is really helpful for all the students. 
+He explained us how we can get benefit of scholarship. He also explained Eligibility, Documents required and many more important things related to satya scholarship. 
+### Mr.Manish Kumar
+He explained us how to register ourself and what are the critirials related to Satya scholarship this really help needy students
+#### 2:00 to 3:00 
+### Expert lecture by Dr. Arshpreet Singh On "Food: A Pivotal Role in Student's Overall Wellness"
+He explained that how diet really matter our day to day life. How we are not aware about out own diet . He also talk about the miths of food and helps to clear the Quaries of Students. His main focus was on the Junk Food or the Snacks that Young generation are consuming often and tells the consequence of the same.
+#### 3:00 to 4:00 
+### Launch of Induction Activities
+Our Seniors let us know about the activity in the Induction Program and tell us that how this affects our
 
