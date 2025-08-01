@@ -82,5 +82,5 @@ He explained us how to register ourself and what are the critirials related to S
 He explained that how diet really matter our day to day life. How we are not aware about out own diet . He also talk about the miths of food and helps to clear the Quaries of Students. His main focus was on the Junk Food or the Snacks that Young generation are consuming often and tells the consequence of the same.
 #### 3:00 to 4:00 
 ### Launch of Induction Activities
-Our Seniors let us know about the activity in the Induction Program and tell us that how this affects our
+Our Seniors let us know about the activity in the Induction Program and tell us that how this affects our MPD Performa. How this is help us to develop our skill. They also let us know about the GitHub App . It found me Really helpful and easy to code . This File is also made on Github.
 
