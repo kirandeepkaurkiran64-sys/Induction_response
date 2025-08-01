@@ -15,21 +15,20 @@ Email: kirandeepkaurkiran64@gmail.com
 
 ## Day 1 (31st July 2025)
 
-#### 8:30 to 10:00 Gurdwara Shabad Kirtan
+#### 8:30 to 10:00 Gurudwara Sahib (Shabad Kirtan)
 
 #### 10:00 to 11:00 Tea Break
 
 #### 11:00 onwards Lectures in auditorium
-> Guest of Owner **"Shri Rawinder Garg"**
+> Guest of honour **"Shri Rawinder Garg"**
 >
->>(Chief Engineer at Munciple Corporation Ludhiana)
->
->> (Chief Engineer at Muncipal Corporation Ludhiana
+>>(Chief Engineer at Municipal Corporation Ludhiana)
+
 ### Anchor(Senior) Miss Taranpreet Kaur and Miss Kusum
-I would like to thank the anchor for encouraging/inspiring us for our upcoming college life. The way Taranpreet di tells us about the college it make us to concentrait on her speeech. The way she managed to tell all important things of the college in quality time is really nice.
+I would like to thank the anchor for encouraging/inspiring us for our upcoming college life. The way Taranpreet di tells us about the college it made us to concentrate on her speeech. The way she managed to tell all important things of the college in quality time is really nice.
 
 ### 1st speech (Mr. Harsimran Singh Jaggi)
-He starts with a poetry which says in punjabi like " Tusi gne de vehde vich ae assi fulle na samae, gne de vehde vich tarsheev leanea nu, sadde saria vallo jee aea nu jee aea nu " It really chnage the whole vibe of the auditorim . They he briefly explained about the history and the oppertunity that we can get in this college throught the Presentation. 
+He starts with a poetry which says in punjabi like " ਤੁਸੀਂ ਜੀ.ਐਨ. ਦੇ ਵਹਿਡੇ ਵਿੱਚ ਆਏ ਹੋ, ਅਸੀਂ ਫੁੱਲਾਂ ਵਿਚ ਨਹੀਂ ਸਮਾਏ।Tusi gne de vehde vich ae assi fulle na samae, gne de vehde vich tarsheev leanea nu, sadde saria vallo jee aea nu jee aea nu " It really chnage the whole vibe of the auditorim . They he briefly explained about the history and the oppertunity that we can get in this college throught the Presentation. 
      
 ### 2nd speech (Alumni Mr. Sangam Arora)
 He is a Software Engineer and was Topper of CSE Brach (batch 2021-2025)
