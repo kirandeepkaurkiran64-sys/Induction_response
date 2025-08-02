@@ -28,7 +28,7 @@ Email: kirandeepkaurkiran64@gmail.com
 I would like to thank the anchor for encouraging/inspiring us for our upcoming college life. The way Taranpreet di tells us about the college it made us to concentrate on her speeech. The way she managed to tell all important things of the college in quality time is really nice.
 
 ### 1st speech (Mr. Harsimran Singh Jaggi)
-He starts with a poetry which says in punjabi like " ਤੁਸੀਂ ਜੀ.ਐਨ. ਦੇ ਵਹਿਡੇ ਵਿੱਚ ਆਏ ਹੋ, ਅਸੀਂ ਫੁੱਲਾਂ ਵਿਚ ਨਹੀਂ ਸਮਾਏ।Tusi gne de vehde vich ae assi fulle na samae, gne de vehde vich tarsheev leanea nu, sadde saria vallo jee aea nu jee aea nu " It really chnage the whole vibe of the auditorim . They he briefly explained about the history and the oppertunity that we can get in this college throught the Presentation. 
+He starts with a poetry which says in punjabi like " ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ, ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ । ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿਚ ਤਸ਼ਰੀਫ਼ ਲਿਆਇਆ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ।" It really chnage the whole vibe of the auditorim . Then through presentation he briefly explained about the history and the oppertunity that we can get in this college. 
      
 ### 2nd speech (Alumni Mr. Sangam Arora)
 He is a Software Engineer and was Topper of CSE Brach (batch 2021-2025)
