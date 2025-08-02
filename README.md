@@ -87,5 +87,7 @@ Our Seniors let us know about the activity in the Induction Program and tell us 
 ## Day 3 (2nd August 2025)
 #### 9:00 to 11:00 
 ### Expert lecture by Dr. Jaswinder Singh
+It's difficult to put my feelings into words. I am really grateful that I got a chance to watch sir live until now I have watched sir's most of the video through teachers , relatives or friends.
 #### 11:00 to 1:00 
 ### Expert lecture by Dr. Priya Darshni Madam on "Universal Human Values"
+The interactive session with mam was so informative. All the concepts and doubts are clear when share's with mam. Mam shows us how Right Understanding is most important than Relationships and Physical facilities. 
