@@ -20,22 +20,24 @@ Email: kirandeepkaurkiran64@gmail.com
 #### 10:00 to 11:00 Tea Break
 
 #### 11:00 onwards Lectures in auditorium
-> Guest of honour **"Shri Rawinder Garg"**
+> Guest of honour **"Shri Rawindra Garg"**
 >
 >>(Chief Engineer at Municipal Corporation Ludhiana)
-
+> Guest of Honour **Eng Rakesh Kumar**
+>>Alumni of 1991 batch currently ACD of Ludhiana 
+ 
 ### Anchor(Senior) Miss Taranpreet Kaur and Miss Kusum
 I would like to thank the anchor for encouraging/inspiring us for our upcoming college life. The way Taranpreet di tells us about the college it made us to concentrate on her speeech. The way she managed to tell all important things of the college in quality time is really nice.
 
 ### 1st speech (Mr. Harsimran Singh Jaggi)
-He starts with a poetry which says in punjabi like " ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ, ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ । ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿਚ ਤਸ਼ਰੀਫ਼ ਲਿਆਇਆ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ।" It really chnage the whole vibe of the auditorim . Then through presentation he briefly explained about the history and the oppertunity that we can get in this college. 
+He starts with a poetry which says in punjabi like " ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ, ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ । ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿਚ ਤਸ਼ਰੀਫ਼ ਲਿਆਇਆ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ।" It really chnage the whole vibe of the auditorim . Then through presentation he briefly explained about the history and the opportunity that we can get in this college. 
      
 ### 2nd speech (Alumni Mr. Sangam Arora)
-He is a Software Engineer and was Topper of CSE Brach (batch 2021-2025)
-Then we get a chance to look at the alumni and their sucess through video he told us their own stories and how he get into this position.
+He is a Software Engineer placed at Arguesoft and was Topper of CSE Brach (batch 2021-2025)
+Then we get a chance to look at the alumni and their success through video he told us their own stories and how he get into this position.
 
 ### 3rd speech (Alumni Mr. Arshpreet Singh)
-He is a Automation Engineer at Airtel and was Topper of IT Branch (batch 2021-2025).
+He is a Automation Engineer at Airtel,Gurugram and was Topper of IT Branch (batch 2021-2025).
 He tells us that when he was the new admission back in 2021 some random video plays on the screen of a Alumni he never through that the day will happen when his own video will be shown on the screen and the new students will watching him.
 
 ###   4th speech (HOD Dr Harpreet Kaur grewal)    
