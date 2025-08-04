@@ -24,9 +24,9 @@ Email: kirandeepkaurkiran64@gmail.com
 >
 >>(Chief Engineer at Municipal Corporation Ludhiana)
 
-> Guest of Honour **Eng. Rakesh Kumar**
+> Guest of Honour **"Eng. Rakesh Kumar"**
 >
->>Alumni of 1991 batch currently ACD of Ludhiana 
+>>(Alumni of 1991 batch currently ACD of Ludhiana)
  
 ### Anchor(Senior) Miss Taranpreet Kaur and Miss Kusum
 I would like to thank the anchor for encouraging/inspiring us for our upcoming college life. The way Taranpreet di tells us about the college it made us to concentrate on her speeech. The way she managed to tell all important things of the college in quality time is really nice.
@@ -89,7 +89,22 @@ Our Seniors let us know about the activity in the Induction Program and tell us 
 ## Day 3 (2nd August 2025)
 #### 9:00 to 11:00 
 ### Expert lecture by Dr. Jaswinder Singh
-It's difficult to put my feelings into words. I am really grateful that I got a chance to watch sir live until now I have watched sir's most of the video through teachers , relatives or friends.
+It's difficult to put my feelings into words. I am really grateful that I got a chance to watch sir live until now I have watched sir's most of the video through teachers , relatives and friends. He also tells us that How his guide motivated him to do further studys. He told us that after compelting his Bsc he start working as a stove repaire man. But Sir's hardwork and his denstiny came him here. 
 #### 11:00 to 1:00 
 ### Expert lecture by Dr. Priya Darshni Madam on "Universal Human Values"
-The interactive session with mam was so informative. All the concepts and doubts are clear when share's with mam. Mam shows us how Right Understanding is most important than Relationships and Physical facilities. 
+The interactive session with mam was so informative. All the concepts and doubts are clear when share's with mam. Mam shows us how Right Understanding is most important than Relationships and Physical facilities. I really injoy mam's class. She listen to everyone and answer everyone.
+
+## Day 4 (3rd August 2025)
+#### 9:30 to 10:30 
+### English Lecture by Prof. Aastik Sharma
+Sir's lecture strated with our introduction. He first see us how we are giving our information then after that he starts explaining us what was our mistakes and incourage us to inhance our confidence. He starts telling us how english and conversation matter in our interview. 
+#### 10:30 to 11:30 
+### Chemistry Lecture by Prof. Karan Bhalla
+Sir was so charming . We give our introduction to sir . Sir asked us what we wanna be in life and appriciate us . He also tells us about the breif layout of chemistry . He incouraged us to visit campus and chemistry labs. Sir's way of teaching is amazing i can't wait to attend sir's more lectures. 
+#### 11:30 to 12:30 Break
+#### 12:30 to 2:30 
+###  Expert Lecture by Dr. Priya Darshni Madam on "Universal Human Values-2"
+This is the second lecture of Priya Darshni mam . One's again we share our thoughts with mam . She introduced us with new things. She told us that we are consist of two parts one is our body and the other one is our soul. How these two things are completely different and we are runing for the things which is for our body like Branded outfits, shoes, goggles, cars ,bikes etc. These things only give us enjoyment but not give us happpiness. So we should work for those things which are for our soul and can make us happy everymoment.
+#### 2:30 to 3:30 
+### Session by Causmic Club 
+The Causmic club was established by 2023 batch . The team of Causmic Club arrange the INduction Programme and also present different different events . Last year I also participated in one of these event called APEX. I found it really cool and wanted to be the member of Causmic Club From when I know that this club 
