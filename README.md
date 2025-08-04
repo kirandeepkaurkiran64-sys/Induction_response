@@ -24,6 +24,7 @@ Email: kirandeepkaurkiran64@gmail.com
 >
 >>(Chief Engineer at Municipal Corporation Ludhiana)
 > Guest of Honour **Eng. Rakesh Kumar**
+>
 >>Alumni of 1991 batch currently ACD of Ludhiana 
  
 ### Anchor(Senior) Miss Taranpreet Kaur and Miss Kusum
