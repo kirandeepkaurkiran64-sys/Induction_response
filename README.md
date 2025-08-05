@@ -111,7 +111,10 @@ The Causmic club was established by 2023 batch . The team of Causmic Club arrang
 ## Day 5 (5th August 2025)
 #### 9:30 to 10:30
 ### P2P Lecture by Seniors
+P2P Peer to Peer lecture was held by Two senior Sir. There way of teaching was so nice. In the gap between school and college I already completed html and css and recently start learning c++ so I found the lecture really easy. All the doubts that I have when I was learing c++ at homw I cleared all of them and sir's are really helping to clearing them all.
 #### 10:30 to 11:30
 ### BEEE Lecture by Prof Simranjeet kaur 
+BEEE (Basic of Electrical and electronic engineering) . She starts the lecture by taking our introduction. Then she tells us about BEEE subjects. Mam refresh all the concepts of 12th which is going be in the !st semester of Physics. The way she is explaning to us about BEEE subject I think that I am gonna enjoy this subject alot.
 #### 11:30 to 12:30
 ### Physics Lecture
+Physics Prof. Starts the lecture by taking our introduction. She asked us some questions based on 12th Physics. She also tells us that we are going to enjoy Physics beacuse we are going to do alot of experiment. From the beginning of high school i have enjoy learing physics but know i know by doing practicals of physics i am going to love this subject more. 
