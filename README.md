@@ -108,3 +108,10 @@ This is the second lecture of Priya Darshni mam . One's again we share our thoug
 #### 2:30 to 3:30 
 ### Session by Causmic Club 
 The Causmic club was established by 2023 batch . The team of Causmic Club arrange the INduction Programme and also present different different events . Last year I also participated in one of these event called APEX. I found it really cool and wanted to be the member of Causmic Club From when I know that this club 
+## Day 5 (5th August 2025)
+#### 9:30 to 10:30
+### P2P Lecture by Seniors
+#### 10:30 to 11:30
+### BEEE Lecture by Prof Simranjeet kaur 
+#### 11:30 to 12:30
+### Physics Lecture
