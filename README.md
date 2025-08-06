@@ -15,11 +15,14 @@ Email: kirandeepkaurkiran64@gmail.com
 
 ## Day 1 (31st July 2025)
 
-#### 8:30 to 10:00 Gurudwara Sahib (Shabad Kirtan)
+#### 8:30 to 10:00 
+### Gurudwara Sahib (Shabad Kirtan)
 
-#### 10:00 to 11:00 Tea Break
+#### 10:00 to 11:00 
+### Tea Break
 
-#### 11:00 onwards Lectures in auditorium
+#### 11:00 onwards
+### Lectures in auditorium
 > Guest of honour **"Shri Rawindra Garg"**
 >
 >>(Chief Engineer at Municipal Corporation Ludhiana)
@@ -68,10 +71,13 @@ He was a student of gndec in ECE branch 1991 pass out.
 
 ## Day 2 (1st August 2025)
 ### Anchor(Senior) Miss Harleen Kaur
-#### 9:30 to 10:30 English Proficiency Test
-#### 10:30 to 11:30 Maths Proficiency Test
+#### 9:30 to 10:30 
+### English Proficiency Test
+#### 10:30 to 11:30 
+### Maths Proficiency Test
 #### 11:30 to 1:00 Break
-#### 1:00 to 2:00 Auditorium About Satya Scholarship
+#### 1:00 to 2:00
+### Auditorium About Satya Scholarship by
  1. Mr. Manoj Kumar
  2. Mr. Manish Kumar
  3. Mr. Shivam Sharma
