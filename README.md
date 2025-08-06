@@ -118,3 +118,24 @@ BEEE (Basic of Electrical and electronic engineering) . She starts the lecture b
 #### 11:30 to 12:30
 ### Physics Lecture
 Physics Prof. Starts the lecture by taking our introduction. She asked us some questions based on 12th Physics. She also tells us that we are going to enjoy Physics beacuse we are going to do alot of experiment. From the beginning of high school i have enjoy learing physics but know i know by doing practicals of physics i am going to love this subject more. 
+
+## Day 6
+#### 9:30 to 10:30 
+### Maths Lecture by Prof. Sukhminder Singh
+Our day was starts with the Lecture of Math's Prof. Sukhminder Singh . His Lecture was so informative for us . He told us about the two apps called "Desmos" and "GeoGebra".
+1. "Desmos" : It is the app used to represent 2D Graphs as we write the equation this help us to visualize maths functions.
+2. "GeoGebra" : It is same as Desmos but the only difference is it represent 3D Graphs when we write equations. I found it really attractive . This app is so fascinating.
+The third thing that Sir told us is about an online application called "Wolfram Alpha". Any Question from any subject can be easily found from this app we just have to write the question.  
+#### 10:30 to 11:30 
+### P2P Lecture by Seniors
+In this lecture Senior game us task and we can to complete it . It was based on the last lecture. So we easily done the task. They clear all our doubts.
+#### 11:30 to 12:30 Break
+#### 1:30 to 2:00 
+### Speech by Sr. Gurcharan Singh Grewal
+We were really pleased to meet Sr. Gurcharan Singh Grewal the Trustee of Nankana sahib Education Trust . He told us about his journy with guru nanak dev engineering college it was so inspiring . He told us that how the alumni of gndec are all over the place . He encourage us to be a entrepreneur. 
+#### 2:00 to 3:30 
+### Lecture by Dr. Lakhvir Singh Khana
+Dr. Lakhvir Singh Started his Session by introducing his self and his center called "Centre for Multi-faceted learning". He encourage us to join this Center. Then he explained us how we can take advantage of "swayam NPTEL". He told us how we can enrol into any course for free . These courses are for 4,8 and 12 weeks we can enrol in which we are interested. After enrollment we can start attending our lecture after every one weel we have to solve on assignment and after the couse completed we can also gave a exam and get certificate after registration. 
+#### 3:30 to 4:00 
+### A small activity by Dr. Arvind Dhingra
+Dr. Arvind Dhingra Sir ended this day with his informative words and one avtivity.
