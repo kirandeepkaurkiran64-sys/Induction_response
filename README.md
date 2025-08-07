@@ -125,7 +125,7 @@ BEEE (Basic of Electrical and electronic engineering) . She starts the lecture b
 ### Physics Lecture
 Physics Prof. Starts the lecture by taking our introduction. She asked us some questions based on 12th Physics. She also tells us that we are going to enjoy Physics beacuse we are going to do alot of experiment. From the beginning of high school i have enjoy learing physics but know i know by doing practicals of physics i am going to love this subject more. 
 
-## Day 6
+## Day 6 (6th August 2025)
 #### 9:30 to 10:30 
 ### Maths Lecture by Prof. Sukhminder Singh
 Our day was starts with the Lecture of Math's Prof. Sukhminder Singh . His Lecture was so informative for us . He told us about the two apps called "Desmos" and "GeoGebra".
@@ -145,3 +145,32 @@ Dr. Lakhvir Singh Started his Session by introducing his self and his center cal
 #### 3:30 to 4:00 
 ### A small activity by Dr. Arvind Dhingra
 Dr. Arvind Dhingra Sir ended this day with his informative words and one avtivity.
+## Day 7 (7th August 2025)
+#### 9:30 to 10:30 
+###  Dr. Parminder Singh (Dean Student Welfare) 
+With a breif Presentation Dr. Parminder Singh let us know about following things
+* Hostel
+* Central Library
+* Computer center
+* Sports
+* Basic Amenities
+  * ATM
+  * Bank
+  * Canteen
+* Societies and Clubs
+* Student Council
+* Medical Facilities
+* Scholarships
+* No-ragging
+#### 10:30 to 11:30 
+### Lecture by Dr. Amit Kamra 
+So, The day started with a wounderful lecture of Dr. Amit Kamra. He introduced us with the Digital Marketing Club (DMC). He told us that how in 2019 Respected Principal Sir have an idea that we should make our own Gne page on Facebook. Then later on Dr. Amit Sir create official pages on other platforms like Instagram, youtube and linkedin. He shows us our seniors hardwork for maintaining these profiles and making new projects, videos and create contents.
+#### 11:30 to 12:30 
+### Dr. Randhir Singh on "Conduct of Examination"
+Sir start with a line that "Ignorance is not an excuse". I really throught that after listening to this line i would never ignore any information given by our teacher. Beacuse if one ignore an important information given by a mentor then this can lead toward a big cause. After that sir give us a brief touch on acaemic portal coving all important things And tell us about the examination how the number divided into different parts and much more.
+#### 12:30 to 1:30 Break
+#### 1:30 to 2:30 
+### P2P Lecture by Seniors
+#### 2:30 to 3:30 
+### Chemistry Lecture by Prof. Karan Bhalla
+
