@@ -171,6 +171,7 @@ Sir start with a line that "Ignorance is not an excuse". I really throught that 
 #### 12:30 to 1:30 Break
 #### 1:30 to 2:30 
 ### P2P Lecture by Seniors
+Seniors teach us operators and if-else statements they are also giving us task as we finish each topics. Which really give us better understanding.
 #### 2:30 to 3:30 
 ### Chemistry Lecture by Prof. Karan Bhalla
 
