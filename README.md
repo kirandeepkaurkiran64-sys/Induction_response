@@ -19,7 +19,7 @@ Email: kirandeepkaurkiran64@gmail.com
 ### Gurudwara Sahib (Shabad Kirtan)
 I would like to start my project with gurbani's shabad
 ## "ਜੋ ਮਾਗਹਿ ਠਾਕੁਰ ਅਪੁਨੇ ਤੇ ਸੋਈ ਸੋਈ ਦੇਵੈ"
-
+![guru](https://github.com/kirandeepkaurkiran64-sys/Induction_response/blob/main/WhatsApp%20Image%202025-08-07%20at%206.04.57%20PM.jpeg)
 #### 10:00 to 11:00 
 ### Tea Break
 
