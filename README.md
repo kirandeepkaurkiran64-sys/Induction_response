@@ -17,6 +17,8 @@ Email: kirandeepkaurkiran64@gmail.com
 
 #### 8:30 to 10:00 
 ### Gurudwara Sahib (Shabad Kirtan)
+I would like to start my project with gurbani's shabad
+## "ਜੋ ਮਾਗਹਿ ਠਾਕੁਰ ਅਪੁਨੇ ਤੇ ਸੋਈ ਸੋਈ ਦੇਵੈ"
 
 #### 10:00 to 11:00 
 ### Tea Break
@@ -174,4 +176,5 @@ Sir start with a line that "Ignorance is not an excuse". I really throught that 
 Seniors teach us operators and if-else statements they are also giving us task as we finish each topics. Which really give us better understanding.
 #### 2:30 to 3:30 
 ### Chemistry Lecture by Prof. Karan Bhalla
+This is the 2nd lecture by Karan Bhalla sir. He teach us the syllabus and starts 1st chapter. I really enjoy learning chemistry . He was helping each and every students with their doubts.
 
