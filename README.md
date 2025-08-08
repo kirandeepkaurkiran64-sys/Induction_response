@@ -40,17 +40,18 @@ I would like to thank the anchor for encouraging and inspiring us as we begin ou
 He starts his speech with a poetry which says in punjabi like " ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ, ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ । ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿਚ ਤਸ਼ਰੀਫ਼ ਲਿਆਇਆ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ।" It really change the whole vibe of the auditorium . Then through his presentation, he briefly explained the history and the opportunity that we can get here. 
      
 ### 2nd speech (Alumni Mr. Sangam Arora)
-He is a Software Engineer placed at Arguesoft and was Topper of CSE Brach (batch 2021-2025)
-Then we get a chance to look at the alumni and their success through video he told us their own stories and how he get into this position.
+Mr Sangam Arora, from the Computer Science & Engineering batch of 2021–2025, delivered the second speech in our series. He is currently working as a Software Engineer at Arguesoft and was the academic topper of his batch.
+He was connected with us through a video where he told us his own stories and how he get into this position.
 
 ### 3rd speech (Alumni Mr. Arshpreet Singh)
 He is a Automation Engineer at Airtel,Gurugram and was Topper of IT Branch (batch 2021-2025).
-He tells us that when he was the new admission back in 2021 some random video plays on the screen of a Alumni he never through that the day will happen when his own video will be shown on the screen and the new students will watching him.
+He shared that when he first joined in 2021, a random alumnus video played on the screen. Back then, he never imagined that one day his video would be shown to new students
+
 
 ###   4th speech (HOD Mrs. Harpreet Kaur Grewal)    
-She was really nice and her speech was very informative. She is the head of Applied Science Department . She explained herself and  Applied Sciences department by giving us an example that "The Applied Sciences Departemnt help 1st year student who just finished there schooling , to get a smooth transition from school life to college life". She also explained how we can get placements with hardwork.
+She was warm and her speech was highly informative. As the Head of the Applied Sciences Department, she shared how the department supports first‑year students who've just completed school, helping them transition smoothly from school to college. She also emphasized that with hard work, we can succeed in good placements.
 ### 5th speech (Dean (academic) Dr. Akshay Giddar)
-He gave us an example that I find really informative that Our success is like ashape of "T" .  Y-axis Reperesent the Growth and the 2 arms in X-axis is our skills that matter to get a good placement.
+He shared a powerful example: “Our success is like the letter 'T.’” The long vertical part—the stem—shows how much we grow over time. The two horizontal arms—the top—stand for the different skills we need to develop to get a good job.
 
 ### 6th speech (Harleen Kaur Grewal)
 
@@ -58,18 +59,18 @@ He gave us an example that I find really informative that Our success is like as
 Today 31/7/2025 he talk about shaheed Udham Singh who was hanged on July 31,1940 at London exact today's date .
 
 ### 8th speech (Principle Dr. Sehajpal Singh)
-So Respected Sir explained the Difference between CSE and IT Branch and tell us how AI is replacing/occupying our places that is why we have to work hard in these 4 years and tell us much more informative information. It was really nice that we got a chance to listen to sir's informative speech .
+Respected Sir explained the difference between the CSE and IT branches and shared how AI is gradually occupying human roles, which is why we must work hard during these four years. He also shared many other valuable pieces of information. It was a great opportunity to listen to his informative and inspiring speech.
 
 ### 9th speech (Shri Ravinder Garg (chief Engineer at Municipal Corporation Lud.))
  
 ### 10th speech ((HOD of IT) Dr. Kulwinder Singh Mann)
-He said the line that touched my Heart that "The Prasad  is that we get in the form of seat in btech we use this wisely" . 
+He said a line that truly touched my heart: "The seat we get in B.Tech is like Prasad—we must use it wisely."
 
 ### 11th speech (Sir Ashoke Singla(Financial Advisor))
-Sir told us how we can easily avail Education loan upto 4 lakh and how we don't have to pay any interest on it . He talk about "Vidya Lakshmi loan" and explained about this breifly.
+Sir spoke about the "Vidya Lakshmi Loan" and explained it briefly. He informed us that we can easily avail an education loan of up to ₹4 lakh without having to pay any interest on it.
 
 ### 12th speech (Alumni Mr. Rakesh Kumar (DC of Ludhiana))
-He was a student of gndec in ECE branch 1991 pass out.
+He was a student of gndec in ECE branch 1991 pass out. 
 
 ## Day 2 (1st August 2025)
 ### Anchor(Senior) Miss Harleen Kaur
@@ -84,24 +85,22 @@ He was a student of gndec in ECE branch 1991 pass out.
  2. Mr. Manish Kumar
  3. Mr. Shivam Sharma
 ### Mr. Manoj Kumar
-He let us know about a new term Buddy4study scholarships portal which is really helpful for all the students. 
-He explained us how we can get the benefit of this scholarship. He also explained Eligibility, Documents required and many more important things related to satya scholarship. 
+He introduced us to a new term — the Buddy4Study scholarship portal — which is really helpful for all students. He explained how we can benefit from this platform and also discussed the eligibility criteria, required documents, and many other important details related to the Satya Scholarship
 ### Mr.Manish Kumar
-He explained us how to register ourself and what are the critirials related to Satya scholarship. I am sure that this really help needy students.
+He explained how to register ourselves and the criteria related to the Satya Scholarship. I am sure this will truly help students in need.
 #### 2:00 to 3:00 
 ### Expert lecture by Dr. Arashpreet Singh On "Food: A Pivotal Role in Student's Overall Wellness"
-He explained that how diet really matter our day to day life. How we are not aware about out our own diet . He also talk about the miths about food and helps to clear the Quaries of Students. His main focus was on the Junk Food or the Snacks that Young generation are consuming often and tells the consequences of the same.
+He explained how diet truly affects our day-to-day life and how many of us are unaware of our own eating habits. He also talked about common myths related to food and helped clear students' queries. His main focus was on junk food and the snacks that the younger generation often consumes, highlighting the consequences of such eating habits.
 #### 3:00 to 4:00 
 ### Launch of Induction Activities
-Our Seniors let us know about the activity in the Induction Program and tell us that how this affects our MPD Performa. How this help us to develop our skill. They also let us know about the GitHub App . It found me Really helpful and easy to code . This File is also made on Github.
+Our seniors informed us about the activities included in the Induction Program and explained how these activities impact our MPD Performa. They shared how such activities help us develop our skills. They also introduced us to the GitHub app, which I found really helpful and made coding easier for me. In fact, this file was also created using GitHub.
 ## Day 3 (2nd August 2025)
 #### 9:00 to 11:00 
 ### Expert lecture by Dr. Jaswinder Singh
-It's difficult to put my feelings into words. I am really grateful that I got a chance to watch sir live until now I have watched sir's most of the video through teachers , relatives and friends. He also tells us that How his guide motivated him to do further studys. He told us that after compelting his Bsc he start working as a stove repaire man. But Sir's hardwork and his denstiny came him here. 
+It’s difficult to put my feelings into words. I’m truly grateful that I got the opportunity to see Sir live. Until now, I had only seen most of his videos through teachers, relatives, and friends. He shared how his guide motivated him to pursue higher studies. After completing his B.Sc., he started working as a stove repairman, but through his hard work and destiny, he reached where he is today.
 #### 11:00 to 1:00 
 ### Expert lecture by Dr. Priya Darshni Madam on "Universal Human Values"
-The interactive session with mam was so informative. All the concepts and doubts are clear when share's with mam. Mam shows us how Right Understanding is most important than Relationships and Physical facilities. I really injoy mam's class. She listen to everyone and answer everyone.
-
+The interactive session with ma’am was very informative. All our concepts and doubts became clear when we shared them with her. She showed us how Right Understanding is more important than relationships and physical facilities. I really enjoyed ma’am’s class—she listens to everyone and answers each question with patience.
 ## Day 4 (3rd August 2025)
 #### 9:30 to 10:30 
 ### English Lecture by Prof. Aastik Sharma
@@ -177,4 +176,13 @@ Seniors teach us operators and if-else statements they are also giving us task a
 #### 2:30 to 3:30 
 ### Chemistry Lecture by Prof. Karan Bhalla
 This is the 2nd lecture by Karan Bhalla sir. He teach us the syllabus and starts 1st chapter. I really enjoy learning chemistry . He was helping each and every students with their doubts.
+## Day 8 (8th August 2025)
+#### 9:00 to 10:30 
+### BEEE Lecture by Prof. Simranjeet Kaur
+#### 10:30 to 11:30 
+### Lecture by Prof. Jaswant Singh
+#### 11:30 to 12:00 
+### Lecture by Seniors related to proficiency test
+
+
 
