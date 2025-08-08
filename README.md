@@ -179,8 +179,10 @@ This is the 2nd lecture by Karan Bhalla sir. He teach us the syllabus and starts
 ## Day 8 (8th August 2025)
 #### 9:00 to 10:30 
 ### BEEE Lecture by Prof. Simranjeet Kaur
+Mam started the syllabus of physics with terminology and get us freash through 12th syllabus 
 #### 10:30 to 11:30 
 ### Lecture by Prof. Jaswant Singh
+
 #### 11:30 to 12:00 
 ### Lecture by Seniors related to proficiency test
 
