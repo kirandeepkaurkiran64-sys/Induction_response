@@ -37,7 +37,7 @@ I believe every noble task should begin with the words of Gurbani
 I would like to thank the anchor for encouraging and inspiring us as we begin our college journey. The way Taranpreet di spoke about the college truly held our attention and inspired us to focus on her words. She managed to share all the important details about the college in a short time, which was really nice.
 
 ### 1st speech (Mr. Harsimran Singh Jaggi)
-He starts with a poetry which says in punjabi like " ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ, ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ । ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿਚ ਤਸ਼ਰੀਫ਼ ਲਿਆਇਆ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ।" It really change the whole vibe of the auditorium . Then through presentation he briefly explained about the history and the opportunity that we can get in this college. 
+He starts his speech with a poetry which says in punjabi like " ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ, ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ । ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿਚ ਤਸ਼ਰੀਫ਼ ਲਿਆਇਆ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ।" It really change the whole vibe of the auditorium . Then through his presentation, he briefly explained the history and the opportunity that we can get here. 
      
 ### 2nd speech (Alumni Mr. Sangam Arora)
 He is a Software Engineer placed at Arguesoft and was Topper of CSE Brach (batch 2021-2025)
