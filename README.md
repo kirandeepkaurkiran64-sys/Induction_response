@@ -34,7 +34,7 @@ I believe every noble task should begin with the words of Gurbani
 >>(Alumni of 1991 batch currently ACD of Ludhiana)
  
 ### Anchor(Senior) Miss Taranpreet Kaur and Miss Kusum
-I would like to thank the anchor for encouraging/inspiring us for our upcoming college life. The way Taranpreet di tells us about the college it made us to concentrate on her speeech. The way she managed to tell all important things of the college in quality time is really nice.
+I would like to thank the anchor for encouraging and inspiring us as we begin our college journey. The way Taranpreet di spoke about the college truly held our attention and inspired us to focus on her words. She managed to share all the important details about the college in a short time, which was really nice.
 
 ### 1st speech (Mr. Harsimran Singh Jaggi)
 He starts with a poetry which says in punjabi like " ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ, ਤੁਸੀਂ ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿੱਚ ਆਏ, ਅਸੀਂ ਫੁੱਲੇ ਨਾ ਸਮਾਏ । ਜੀ.ਐਨ.ਈ ਦੇ ਵਿਹੜੇ ਵਿਚ ਤਸ਼ਰੀਫ਼ ਲਿਆਇਆ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ, ਸਾਡੇ ਸਾਰਿਆਂ ਵਲੋਂ ਜੀ ਆਇਆਂ ਨੂੰ।" It really change the whole vibe of the auditorium . Then through presentation he briefly explained about the history and the opportunity that we can get in this college. 
@@ -47,12 +47,12 @@ Then we get a chance to look at the alumni and their success through video he to
 He is a Automation Engineer at Airtel,Gurugram and was Topper of IT Branch (batch 2021-2025).
 He tells us that when he was the new admission back in 2021 some random video plays on the screen of a Alumni he never through that the day will happen when his own video will be shown on the screen and the new students will watching him.
 
-###   4th speech (HOD Mrs. Harpreet Kaur garewal)    
+###   4th speech (HOD Mrs. Harpreet Kaur Grewal)    
 She was really nice and her speech was very informative. She is the head of Applied Science Department . She explained herself and  Applied Sciences department by giving us an example that "The Applied Sciences Departemnt help 1st year student who just finished there schooling , to get a smooth transition from school life to college life". She also explained how we can get placements with hardwork.
 ### 5th speech (Dean (academic) Dr. Akshay Giddar)
 He gave us an example that I find really informative that Our success is like ashape of "T" .  Y-axis Reperesent the Growth and the 2 arms in X-axis is our skills that matter to get a good placement.
 
-### 6th speech (Harleen Kaur Garewal)
+### 6th speech (Harleen Kaur Grewal)
 
 ### 7th speech (Dean (Student Welfare) Dr. Parminder Singh )
 Today 31/7/2025 he talk about shaheed Udham Singh who was hanged on July 31,1940 at London exact today's date .
