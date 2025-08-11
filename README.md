@@ -174,19 +174,21 @@ Sir began with the line, “Ignorance is not an excuse.” I felt that after hea
 The seniors taught us about operators and if-else statements, and they gave us tasks after each topic. This really helped us understand better
 #### 2:30 to 3:30 
 ### Chemistry Lecture by Prof. Karan Bhalla
-This is the 2nd lecture by Karan Bhalla sir. He teach us the syllabus and starts 1st chapter. I really enjoy learning chemistry . He was helping each and every students with their doubts.
+This was the second lecture by Karan Bhalla sir, in which he taught us the syllabus and began the first chapter. I really enjoy learning chemistry, and he helped every student with their doubts.
 ## Day 8 (8th August 2025)
 #### 9:00 to 10:30 
 ### BEEE Lecture by Prof. Simranjeet Kaur
 Mam started the syllabus of physics with terminology and get us freash through 12th syllabus 
 #### 10:30 to 11:30 
 ### Lecture by Prof. Jaswant Singh
-
+Prof. Jaswant Singh was really kind. His session was interactive—he began by asking why we chose IT and then discussed some basic terms related to technology and coding that the students shared
 #### 11:30 to 12:00 
 ### Lecture by Seniors related to proficiency test
+They informed us about our performance in the proficiency test, pointed out our mistakes, and encouraged us to do better on the next one.
 ## Day 9 (11th August 2025)
 #### 9:30 to 10:30 
 ### Math 1 Lecture by Pragya Mam 
+The first math lecture was great. Ma'am introduced us to the syllabus, explained how the marks are distributed, and then began teaching the first chapter.
 #### 10:30 to 11:30
 ### Chemistry Lecture by Amanpreet kaur Sodhi Mam
 #### 11:30 to 12:30 Break
