@@ -71,6 +71,7 @@ Sir spoke about the "Vidya Lakshmi Loan" and explained it briefly. He informed u
 
 ### 12th speech (Alumni Mr. Rakesh Kumar (DC of Ludhiana))
 He was a student of gndec in ECE branch 1991 pass out. 
+![Auditorium](https://github.com/kirandeepkaurkiran64-sys/Induction_response/blob/main/WhatsApp%20Image%202025-08-11%20at%206.38.27%20PM.jpeg)
 
 ## Day 2 (1st August 2025)
 ### Anchor(Senior) Miss Harleen Kaur
