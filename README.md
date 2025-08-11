@@ -104,45 +104,44 @@ The interactive session with ma’am was very informative. All our concepts and 
 ## Day 4 (3rd August 2025)
 #### 9:30 to 10:30 
 ### English Lecture by Prof. Aastik Sharma
-Sir's lecture strated with our introduction. He first see us how we are giving our information then after that he starts explaining us what was our mistakes and incourage us to inhance our confidence. He starts telling us how english and conversation matter in our interview. 
+Sir began the lecture by having us introduce ourselves. He observed how we presented our information and then provided feedback on our mistakes. He encouraged us to build our confidence and emphasized the importance of English proficiency and effective communication during interviews.
 #### 10:30 to 11:30 
 ### Chemistry Lecture by Prof. Karan Bhalla
-Sir was so charming . We give our introduction to sir . Sir asked us what we wanna be in life and appriciate us . He also tells us about the breif layout of chemistry . He incouraged us to visit campus and chemistry labs. Sir's way of teaching is amazing i can't wait to attend sir's more lectures. 
+The teacher was very nice. We introduced ourselves to him. He asked what we want to become in life and praised our answers. He also talked about what we will learn in chemistry. He encouraged us to visit the campus and the chemistry labs. His teaching style is wonderful—I can’t wait to attend more of his lectures 
 #### 11:30 to 12:30 Break
 #### 12:30 to 2:30 
 ###  Expert Lecture by Dr. Priya Darshni Madam on "Universal Human Values-2"
-This is the second lecture of Priya Darshni mam . One's again we share our thoughts with mam . She introduced us with new things. She told us that we are consist of two parts one is our body and the other one is our soul. How these two things are completely different and we are runing for the things which is for our body like Branded outfits, shoes, goggles, cars ,bikes etc. These things only give us enjoyment but not give us happpiness. So we should work for those things which are for our soul and can make us happy everymoment.
+This was Priya Darshni ma’am’s second lecture. Once again, we shared our thoughts with her. She introduced new ideas, explaining that we have two parts: our body and our soul. These parts are very different. Often, we chase things for our body—like branded clothes, shoes, glasses, cars, and bikes—which bring enjoyment but not true happiness. She encouraged us to focus on things that nourish our soul—because those bring lasting happiness
 #### 2:30 to 3:30 
 ### Session by Causmic Club 
-The Causmic club was established by 2023 batch . The team of Causmic Club arrange the INduction Programme and also present different different events . Last year I also participated in one of these event called APEX. I found it really cool and wanted to be the member of Causmic Club From when I know that this club 
+The Causmic Club was started by the 2023 batch. The club team organizes the induction program and hosts a variety of events. Last year, I participated in one of those events called APEX—it was really cool and made me want to become a member ever since I first learned about the club.
 ## Day 5 (5th August 2025)
 #### 9:30 to 10:30
 ### P2P Lecture by Seniors
-P2P Peer to Peer lecture was held by Two senior Sir. There way of teaching was so nice. In the gap between school and college I already completed html and css and recently start learning c++ so I found the lecture really easy. All the doubts that I have when I was learing c++ at homw I cleared all of them and sir's are really helping to clearing them all.
+A peer-to-peer (P2P) lecture was delivered by two senior instructors. Their teaching style was excellent. During my break between school and college, I had already learned HTML and CSS, and recently started C++. Because of that, I found the lecture quite easy to follow. I had many doubts while learning C++ at home, but they helped me clear all of them. Their support has been incredibly helpful.
 #### 10:30 to 11:30
 ### BEEE Lecture by Prof Simranjeet kaur 
-BEEE (Basic of Electrical and electronic engineering) . She starts the lecture by taking our introduction. Then she tells us about BEEE subjects. Mam refresh all the concepts of 12th which is going be in the !st semester of Physics. The way she is explaning to us about BEEE subject I think that I am gonna enjoy this subject alot.
+The BEEE (Basics of Electrical and Electronics Engineering) class began with the instructor asking us to introduce ourselves. She then explained what the BEEE course covers and briefly reviewed important 12th-grade concepts that will be part of our first semester in physics. The way she taught it made me feel like I’m really going to enjoy this subject!
 #### 11:30 to 12:30
 ### Physics Lecture
-Physics Prof. Starts the lecture by taking our introduction. She asked us some questions based on 12th Physics. She also tells us that we are going to enjoy Physics beacuse we are going to do alot of experiment. From the beginning of high school i have enjoy learing physics but know i know by doing practicals of physics i am going to love this subject more. 
-
+The Physics professor began the lecture by having us introduce ourselves and then asked us some questions based on Class 12 physics. She mentioned that we would truly enjoy physics because we’ll be conducting many experiments. I have enjoyed learning physics since high school—but now that we'll be doing hands-on practicals, I’m certain I’m going to love this subject even more
 ## Day 6 (6th August 2025)
 #### 9:30 to 10:30 
 ### Maths Lecture by Prof. Sukhminder Singh
-Our day was starts with the Lecture of Math's Prof. Sukhminder Singh . His Lecture was so informative for us . He told us about the two apps called "Desmos" and "GeoGebra".
-1. "Desmos" : It is the app used to represent 2D Graphs as we write the equation this help us to visualize maths functions.
-2. "GeoGebra" : It is same as Desmos but the only difference is it represent 3D Graphs when we write equations. I found it really attractive . This app is so fascinating.
-The third thing that Sir told us is about an online application called "Wolfram Alpha". Any Question from any subject can be easily found from this app we just have to write the question.  
+Our day began with a lecture by Prof. Sukhminder Singh, which was very informative. He introduced us to two apps:
+1. Desmos, which lets us draw 2D graphs by entering equations and helps us visualize math functions.
+2. GeoGebra, similar to Desmos, but it can show 3D graphs when we enter equations—I found it really fascinating.
+He also told us about Wolfram Alpha, an online tool where we can easily find answers to questions from any subject just by typing them in
 #### 10:30 to 11:30 
 ### P2P Lecture by Seniors
-In this lecture Senior game us task and we can to complete it . It was based on the last lecture. So we easily done the task. They clear all our doubts.
+In this lecture, the seniors gave us a task based on the previous lecture, and we completed it easily. They cleared all our doubts.
 #### 11:30 to 12:30 Break
 #### 1:30 to 2:00 
 ### Speech by Sr. Gurcharan Singh Grewal
-We were really pleased to meet Sr. Gurcharan Singh Grewal the Trustee of Nankana sahib Education Trust . He told us about his journy with guru nanak dev engineering college it was so inspiring . He told us that how the alumni of gndec are all over the place . He encourage us to be a entrepreneur. 
+We were very pleased to meet Sr. Gurcharan Singh Grewal, the Trustee of the Nankana Sahib Education Trust. He shared his journey with Guru Nanak Dev Engineering College, and it was truly inspiring. He told us how the alumni of GNDEC are spread all over the world. He encouraged us to become entrepreneurs.
 #### 2:00 to 3:30 
 ### Lecture by Dr. Lakhvir Singh Khana
-Dr. Lakhvir Singh Started his Session by introducing his self and his center called "Centre for Multi-faceted learning". He encourage us to join this Center. Then he explained us how we can take advantage of "swayam NPTEL". He told us how we can enrol into any course for free . These courses are for 4,8 and 12 weeks we can enrol in which we are interested. After enrollment we can start attending our lecture after every one weel we have to solve on assignment and after the couse completed we can also gave a exam and get certificate after registration. 
+Dr. Lakhvir Singh began his session by introducing himself and the “Centre for Multi-Faceted Learning.” He encouraged us to join the center. Then, he explained how we can take advantage of SWAYAM–NPTEL. He told us that we can enroll in any course for free—these courses are available in durations of 4, 8, or 12 and more weeks. After enrollment, we can start watching lectures. Every week, we have to complete an assignment. Once the course is completed, we can also take an exam and receive a certificate after registering. 
 #### 3:30 to 4:00 
 ### A small activity by Dr. Arvind Dhingra
 Dr. Arvind Dhingra Sir ended this day with his informative words and one avtivity.
@@ -165,14 +164,14 @@ With a breif Presentation Dr. Parminder Singh let us know about following things
 * No-ragging
 #### 10:30 to 11:30 
 ### Lecture by Dr. Amit Kamra 
-So, The day started with a wounderful lecture of Dr. Amit Kamra. He introduced us with the Digital Marketing Club (DMC). He told us that how in 2019 Respected Principal Sir have an idea that we should make our own Gne page on Facebook. Then later on Dr. Amit Sir create official pages on other platforms like Instagram, youtube and linkedin. He shows us our seniors hardwork for maintaining these profiles and making new projects, videos and create contents.
+The day began with a wonderful lecture by Dr. Amit Kamra. He introduced us to the Digital Marketing Club (DMC). He explained that in 2019, our respected principal had the idea to create a GNDEC page on Facebook. Later, Dr. Amit Sir created official pages on other platforms like Instagram, YouTube, and Linkedin. He showed us how our seniors have worked hard to maintain these profiles and create new projects, videos, and content.
 #### 11:30 to 12:30 
 ### Dr. Randhir Singh on "Conduct of Examination"
-Sir start with a line that "Ignorance is not an excuse". I really throught that after listening to this line i would never ignore any information given by our teacher. Beacuse if one ignore an important information given by a mentor then this can lead toward a big cause. After that sir give us a brief touch on acaemic portal coving all important things And tell us about the examination how the number divided into different parts and much more.
+Sir began with the line, “Ignorance is not an excuse.” I felt that after hearing this, I would never ignore any information given by our teacher. If someone ignores an important detail from a mentor, it could lead to serious consequences. After that, Sir gave us a brief overview of the academic portal, covering all the important features. He also explained how exam marks are divided into different sections and much more.
 #### 12:30 to 1:30 Break
 #### 1:30 to 2:30 
 ### P2P Lecture by Seniors
-Seniors teach us operators and if-else statements they are also giving us task as we finish each topics. Which really give us better understanding.
+The seniors taught us about operators and if-else statements, and they gave us tasks after each topic. This really helped us understand better
 #### 2:30 to 3:30 
 ### Chemistry Lecture by Prof. Karan Bhalla
 This is the 2nd lecture by Karan Bhalla sir. He teach us the syllabus and starts 1st chapter. I really enjoy learning chemistry . He was helping each and every students with their doubts.
@@ -185,6 +184,17 @@ Mam started the syllabus of physics with terminology and get us freash through 1
 
 #### 11:30 to 12:00 
 ### Lecture by Seniors related to proficiency test
-
+## Day 9 (11th August 2025)
+#### 9:30 to 10:30 
+### Math 1 Lecture by Pragya Mam 
+#### 10:30 to 11:30
+### Chemistry Lecture by Amanpreet kaur Sodhi Mam
+#### 11:30 to 12:30 Break
+#### 12:30 to 1:30 
+### BEEE Lecture by Simranjit Kaur Mam
+#### 1:30 to 2:30 
+### Professional English Communication Lecture by Parneet Kaur
+#### 2:30 to 3:30 
+### Math Tutorial by Pragya Mam
 
 
