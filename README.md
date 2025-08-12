@@ -100,10 +100,14 @@ He explained how diet truly affects our day-to-day life and how many of us are u
 ### Launch of Induction Activities
 Our seniors informed us about the activities included in the Induction Program and explained how these activities impact our MPD Performa. They shared how such activities help us develop our skills. They also introduced us to the GitHub app, which I found really helpful and made coding easier for me. In fact, this file was also created using GitHub.
 ## Day 3 (2nd August 2025)
+> Guest of honour **"S. Gurcharan Singh Grewal"**
+>
+>> Secretary-SGPC encouraged
 #### 9:00 to 11:00 
-### Expert lecture by Dr. Jaswinder Singh
+### Expert lecture by Dr. Jaswinder Singh(also known as JaswinS Lab on Wheels)
 It’s difficult to put my feelings into words. I’m truly grateful that I got the opportunity to see Sir live. Until now, I had only seen most of his videos through teachers, relatives, and friends. He shared how his guide motivated him to pursue higher studies. After completing his B.Sc., he started working as a stove repairman, but through his hard work and destiny, he reached where he is today.
 ![jaswinder sir](https://github.com/kirandeepkaurkiran64-sys/Induction_response/blob/main/jaswinder%20sir.jpeg)
+
 #### 11:00 to 1:00 
 ### Expert lecture by Dr. Priya Darshni Madam on "Universal Human Values"
 The interactive session with ma’am was very informative. All our concepts and doubts became clear when we shared them with her. She showed us how Right Understanding is more important than relationships and physical facilities. I really enjoyed ma’am’s class—she listens to everyone and answers each question with patience.
@@ -118,6 +122,7 @@ The teacher was very nice. We introduced ourselves to him. He asked what we want
 #### 12:30 to 2:30 
 ###  Expert Lecture by Dr. Priya Darshni Madam on "Universal Human Values-2"
 This was Priya Darshni ma’am’s second lecture. Once again, we shared our thoughts with her. She introduced new ideas, explaining that we have two parts: our body and our soul. These parts are very different. Often, we chase things for our body—like branded clothes, shoes, glasses, cars, and bikes—which bring enjoyment but not true happiness. She encouraged us to focus on things that nourish our soul—because those bring lasting happiness
+![Priya darshani mam](https://github.com/kirandeepkaurkiran64-sys/Induction_response/blob/main/Priya%20darshani%20mam.jpeg)
 #### 2:30 to 3:30 
 ### Session by Causmic Club 
 The Causmic Club was started by the 2023 batch. The club team organizes the induction program and hosts a variety of events. Last year, I participated in one of those events called APEX—it was really cool and made me want to become a member ever since I first learned about the club.
