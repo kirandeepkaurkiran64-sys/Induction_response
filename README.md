@@ -130,6 +130,7 @@ The Causmic Club was started by the 2023 batch. The club team organizes the indu
 #### 9:30 to 10:30
 ### P2P Lecture by Seniors
 A peer-to-peer (P2P) lecture was delivered by two senior instructors. Their teaching style was excellent. During my break between school and college, I had already learned HTML and CSS, and recently started C++. Because of that, I found the lecture quite easy to follow. I had many doubts while learning C++ at home, but they helped me clear all of them. Their support has been incredibly helpful.
+![Seniors](https://github.com/kirandeepkaurkiran64-sys/Induction_response/blob/main/seniors.jpeg)
 #### 10:30 to 11:30
 ### BEEE Lecture by Prof Simranjeet kaur 
 The BEEE (Basics of Electrical and Electronics Engineering) class began with the instructor asking us to introduce ourselves. She then explained what the BEEE course covers and briefly reviewed important 12th-grade concepts that will be part of our first semester in physics. The way she taught it made me feel like I’m really going to enjoy this subject!
