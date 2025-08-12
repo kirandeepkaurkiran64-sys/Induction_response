@@ -94,6 +94,7 @@ He explained how to register ourselves and the criteria related to the Satya Sch
 #### 2:00 to 3:00 
 ### Expert lecture by Dr. Arashpreet Singh On "Food: A Pivotal Role in Student's Overall Wellness"
 He explained how diet truly affects our day-to-day life and how many of us are unaware of our own eating habits. He also talked about common myths related to food and helped clear students' queries. His main focus was on junk food and the snacks that the younger generation often consumes, highlighting the consequences of such eating habits.
+![food](https://github.com/kirandeepkaurkiran64-sys/Induction_response/blob/main/WhatsApp%20Image%202025-08-12%20at%205.54.26%20PM.jpeg)
 #### 3:00 to 4:00 
 ### Launch of Induction Activities
 Our seniors informed us about the activities included in the Induction Program and explained how these activities impact our MPD Performa. They shared how such activities help us develop our skills. They also introduced us to the GitHub app, which I found really helpful and made coding easier for me. In fact, this file was also created using GitHub.
