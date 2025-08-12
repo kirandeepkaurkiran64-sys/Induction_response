@@ -126,6 +126,7 @@ This was Priya Darshni ma’am’s second lecture. Once again, we shared our tho
 #### 2:30 to 3:30 
 ### Session by Causmic Club 
 The Causmic Club was started by the 2023 batch. The club team organizes the induction program and hosts a variety of events. Last year, I participated in one of those events called APEX—it was really cool and made me want to become a member ever since I first learned about the club.
+![Causmic club](https://github.com/kirandeepkaurkiran64-sys/Induction_response/blob/main/WhatsApp%20Image%202025-08-12%20at%206.06.55%20PM.jpeg)
 ## Day 5 (5th August 2025)
 #### 9:30 to 10:30
 ### P2P Lecture by Seniors
@@ -197,18 +198,8 @@ Prof. Jaswant Singh was really kind. His session was interactive—he began by a
 #### 11:30 to 12:00 
 ### Lecture by Seniors related to proficiency test
 They informed us about our performance in the proficiency test, pointed out our mistakes, and encouraged us to do better on the next one.
-## Day 9 (11th August 2025)
-#### 9:30 to 10:30 
-### Math 1 Lecture by Pragya Mam 
-The first math lecture was great. Ma'am introduced us to the syllabus, explained how the marks are distributed, and then began teaching the first chapter.
-#### 10:30 to 11:30
-### Chemistry Lecture by Amanpreet kaur Sodhi Mam
-#### 11:30 to 12:30 Break
-#### 12:30 to 1:30 
-### BEEE Lecture by Simranjit Kaur Mam
-#### 1:30 to 2:30 
-### Professional English Communication Lecture by Parneet Kaur
-#### 2:30 to 3:30 
-### Math Tutorial by Pragya Mam
+## Day 9 (11th August 2025) to Day () 
+## Our regular classes started with one or two peer two peer classes
+
 
 
