@@ -102,7 +102,7 @@ Our seniors informed us about the activities included in the Induction Program a
 ## Day 3 (2nd August 2025)
 > Guest of honour **"S. Gurcharan Singh Grewal"**
 >
->> Secretary-SGPC encouraged
+>> Secretary-SGPC
 #### 9:00 to 11:00 
 ### Expert lecture by Dr. Jaswinder Singh(also known as JaswinS Lab on Wheels)
 It’s difficult to put my feelings into words. I’m truly grateful that I got the opportunity to see Sir live. Until now, I had only seen most of his videos through teachers, relatives, and friends. He shared how his guide motivated him to pursue higher studies. After completing his B.Sc., he started working as a stove repairman, but through his hard work and destiny, he reached where he is today.
