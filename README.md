@@ -1,4 +1,5 @@
 # Activity report of Induction Program 2025
+![Photo](WhatsAppImage2025-08-12at5.14.13PM.jpeg)
 Name: Krandeep Kaur
 
 Fathers name: Paramjit Singh
@@ -12,6 +13,7 @@ Mobile no: 8847034185
 Email: kirandeepkaurkiran64@gmail.com
 
 ![Img](https://github.com/kirandeepkaurkiran64-sys/Induction_response/blob/main/kirandeep%20kaur.jpeg)
+
 
 ## Day 1 (31st July 2025)
 
