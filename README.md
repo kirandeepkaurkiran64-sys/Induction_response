@@ -101,6 +101,7 @@ Our seniors informed us about the activities included in the Induction Program a
 #### 9:00 to 11:00 
 ### Expert lecture by Dr. Jaswinder Singh
 It’s difficult to put my feelings into words. I’m truly grateful that I got the opportunity to see Sir live. Until now, I had only seen most of his videos through teachers, relatives, and friends. He shared how his guide motivated him to pursue higher studies. After completing his B.Sc., he started working as a stove repairman, but through his hard work and destiny, he reached where he is today.
+![
 #### 11:00 to 1:00 
 ### Expert lecture by Dr. Priya Darshni Madam on "Universal Human Values"
 The interactive session with ma’am was very informative. All our concepts and doubts became clear when we shared them with her. She showed us how Right Understanding is more important than relationships and physical facilities. I really enjoyed ma’am’s class—she listens to everyone and answers each question with patience.
