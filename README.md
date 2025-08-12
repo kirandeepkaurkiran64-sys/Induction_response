@@ -1,5 +1,5 @@
 # Activity report of Induction Program 2025
-![Photo](WhatsAppImage2025-08-12at5.14.13PM.jpeg)
+![Photo](https://github.com/kirandeepkaurkiran64-sys/Induction_response/blob/main/WhatsApp%20Image%202025-08-12%20at%205.14.13%20PM.jpeg)
 Name: Krandeep Kaur
 
 Fathers name: Paramjit Singh
