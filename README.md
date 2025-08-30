@@ -198,8 +198,22 @@ Prof. Jaswant Singh was really kind. His session was interactive—he began by a
 #### 11:30 to 12:00 
 ### Lecture by Seniors related to proficiency test
 They informed us about our performance in the proficiency test, pointed out our mistakes, and encouraged us to do better on the next one.
-## Day 9 (11th August 2025) to Day () 
-## Our regular classes started with one or two peer two peer classes
+## 11th August 2025 to our regular classes started
+## Day 9 (23rd August 2025)
+#### 10:30 to 10:45
+### introduced Mathemagic club 
+The executive members, Ikbar Singh Grewal and Gurinderdeep Kaur, introduced us to the Mathemagic Club. I understand how the Mathemagic Club could help us in clearing our aptitude tests, as they often include basic questions and concepts. This club can support us in strengthening those fundamentals.
+#### 10:45 to 11:00 
+### introduced English club 
+The executive members, Jitanya Arora and Navkiran Kaur, introduced us to the English Club. It was an interactive session in which all the students participated. The seniors explained the purpose of the club and how we can benefit from joining it. They also shared how the English Club helps us improve our English skills.
+#### 11:00 to 
+### Lecture by Jatinder singh sir
+The main part of the day was a lecture by Jatinder Singh Sir, focused on the revolution and era of Artificial Intelligence (AI). He showed us a video demonstrating how AI will handle various aspects of our daily lives, how it can assist us, and how it can make our work easier. He also introduced us to the IKIGAI School of AI and its mission. This school is run by professionals from IIT Kanpur.
+### fun activty by seniors of causemic club
+At last, the seniors of the Causmic Club concluded the day with some fun and interactive activities to boost our energy, such as guessing the movie, country, or state using emojis.
+
+
+
 
 
 
